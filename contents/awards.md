@@ -1,13 +1,12 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- Outstanding Graduate Award (NUIST), 2025.
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
+- First-Class Graduate Academic Scholarship (NUIST), 2024.
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2023 & 2024.
+- First-Class Graduate Academic Scholarship (NUIST), 2023.
 
-- Outstanding Undergraduate Thesis Award (Jiangsu Provincial Dept. of Education, China), 2022.
+- First-Class Undergraduate Academic Scholarship (NJUST), 2022.
 
-- First-Prize Corporate Scholarship (CUMT), 2020.
+- Merit Student (NJUST), 2022, 2023 & 2024.
 
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
-
+- Outstanding Student Leader (NJUST), 2022.
